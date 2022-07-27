@@ -1,1 +1,2 @@
-- Hi, I’m @Cota-UABC
+- Hi, I’m cota
+- Toma awa todos los dias
