@@ -1,2 +1,2 @@
 - Hi, I’m cota
-- Toma awa todos los dias
+- Toma agua todos los dias
