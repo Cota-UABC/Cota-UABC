@@ -1,2 +1,1 @@
 - Hi, I’m cota
-- Toma agua todos los dias
